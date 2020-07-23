@@ -1,1 +1,1 @@
-# bartsaminski
+# bartlomiej saminski
